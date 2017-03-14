@@ -1,1 +1,0 @@
-# yokotanaohiko.github.io
